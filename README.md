@@ -1,0 +1,1 @@
+# movingimage_bitdash_360
